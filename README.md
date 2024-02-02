@@ -1,16 +1,15 @@
-### Hi there 👋
+### Kiến Thức Tiếng Nhật
 
-<!--
-**miraieduvn/miraieduvn** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Với những thông tin, kiến thức bổ ích tại mirai.edu.vn sẽ giúp ích cho bạn và mọi người trong việc chọn lọc thông tin nhanh nhất, chính xác nhất trong thời đại công nghệ số ,
 
-Here are some ideas to get you started:
+- Địa chỉ: Thanh Xuân , Hà Nội
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+- SĐT: 0869377629
+
+- Website: https://mirai.edu.vn/
+
+https://www.pinterest.com/miraieduvn/
+
+https://vimeo.com/miraieduvn
+
+https://www.youtube.com/channel/UC8lJqsjB1icePbReNFK_fcQ/
